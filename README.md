@@ -1,7 +1,7 @@
 # fablelite.tidyverts.org
 **Selamat Datang di Gigadepo5k!**
 
-Selamat datang di repositori resmi Gigadepo5k. Kami adalah platform judi online terkemuka yang menyediakan pengalaman slot online terbaik dengan deposit minimal 5k tanpa potongan. Di sini, Anda akan menemukan berbagai permainan slot gacor dan menarik yang siap memanjakan Anda dengan sensasi kemenangan. 
+Selamat datang di repositori resmi Gigadepo5k. Kami adalah platform game online terkemuka yang menyediakan pengalaman slot online terbaik dengan deposit minimal 5k tanpa potongan. Di sini, Anda akan menemukan berbagai permainan slot gacor dan menarik yang siap memanjakan Anda dengan sensasi kemenangan. 
 
 ### Fitur Utama:
 - Deposit minimal hanya 5k tanpa potongan.
